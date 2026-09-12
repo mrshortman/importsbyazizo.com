@@ -2,16 +2,16 @@
 ## WE VALUE OUR CUSTOMERS
 ### WE HELP YOU GET YOU DREAM GADGETS
 
-**Bold text**
-*Italic text*
-~~Strikethrough~~
+READY FOR YOU
+rich mind
+best gadgets dealer
 
-- Bullet point
-- Another bullet point
+make sure you hit our inbox for the best services
+in or out
 
-1. First
-2. Second
-3. Third
+conctact our customer care
+through Whatsapp or calls
+3. 0703464737
 
 [Link text](https://example.com)
 
