@@ -13,7 +13,7 @@ conctact our customer care
 through Whatsapp or calls
 3. 0703464737
 
-[Link text](https://example.com)
+link us through 0703464737
 
 ![Image description](image-url)
 
