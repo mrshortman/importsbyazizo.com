@@ -1,6 +1,6 @@
-# Heading 1
-## Heading 2
-### Heading 3
+# WELCOME TO AZIZO IMPORTS
+## WE VALUE OUR CUSTOMERS
+### WE HELP YOU GET YOU DREAM GADGETS
 
 **Bold text**
 *Italic text*
